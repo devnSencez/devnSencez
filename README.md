@@ -1,6 +1,6 @@
-feel free to intz ^^ just refrain from being mean lolz (mostly semi afk..)
-i respectz any shipz but mostly into sonadow..
-i like drawing so i can take commissionz ^^ 
-if you see me dont be afraid to cuddle !! we serve free hugz.. also, if a skinz's name does NOT have an emoji.. it is NOT an alter of ourz! just some character skinz that we wanted to do..
+feel free to int :), just refrain from being mean, mostly semi afk so you can always whisper to interact
+i respectz any ships, not illegal ones though! i'm a multishipper / or I just dont ship some certain characters at all
+if you see us, dont be afraid to cuddle, we love making friends ! 
+sometimes, our skins dont have a "sys" placed on our name, so it means someone else if fronting entirely ^^
 
-im so sigma.
+so sigma balls sighs.
