@@ -1,6 +1,6 @@
 ________________________________ ׂׂૢ་༘࿐
 
-Hello . my name is verin, though you can call me anything you'd like, inappropriate names though is not encouraged. I use they / he /she pronouns and I'm a filipino . I have many interests such as: Sonic the hedgehog ( sth ), Demon slayer ( kny ), mobile legends, mxtx, cookie run kingdom and yet there's more, though I won't say most of it.
+Hello . my name is verin, though you can call me anything you'd like, inappropriate names though is not encouraged. I use they / he / she pronouns and I'm a filipino . I have many interests such as: Sonic the hedgehog ( sth ), Demon slayer ( kny ), mobile legends, mxtx, cookie run kingdom and yet there's more, though I won't say most of it.
 
 __________________ ༉‧₊˚.
 
@@ -14,7 +14,7 @@ also i'm a proud kubz scouts fan, he's my dad frfr
 
 __________________ ༉‧₊˚.
 
-  - " any ships or things I don't personally want to interact with "
+  - " any ships or things I don't personally want to interact with " : 
 
 Well for me , I like any ships , not the illegal ones, I don't tolerate with those . I'm a multishipper so anything you may ship of is something I can surely agree of. (again, not the illegal ones like proships or something). for my dni's ? well basic dni criteria really. And surely I discourage people who uses their opinionsa and make it as "facts".
 
